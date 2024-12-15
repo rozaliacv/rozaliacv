@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rozaliacv32@gmail.com,https://www.linkedin.com/in/rozalia-c-varghese-925457256/**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lUtnqrWkORp4serKr1zPve9KwEuUtZVM/view?usp=sharing](https://drive.google.com/file/d/1lUtnqrWkORp4serKr1zPve9KwEuUtZVM/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1SwNcrCGPn1uhgqZVlDg6JY0oOv_2icDI/view?usp=drive_link](https://drive.google.com/file/d/1SwNcrCGPn1uhgqZVlDg6JY0oOv_2icDI/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
